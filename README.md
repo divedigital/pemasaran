@@ -45,7 +45,7 @@ Menurut desainernya, Rob Janoff, pembuatan branding dalam bentuk logo Apple sebe
 
 Anda sudah mendapatkan banyak inspirasi dari branding-branding besar diatas. Apakah sudah ada ide tentang pengembangan branding usaha anda? Segera rumuskan dan visualisasikan branding usaha anda. Selamat mencoba !!
 
-Jika anda tertarik untuk belajar lebih banyak tentang strategi digital marketing yang lagi hype, anda bisa mencoba [berkenalan dengan SEO](https://divedigital.id/optimasi-seo/), (menemukan keyword yang banyak dicari](https://divedigital.id/riset-keyword/) dan [optimasi SEO Off Page](https://divedigital.id/digital-marketing/backlink/)
+Jika anda tertarik untuk belajar lebih banyak tentang strategi digital marketing yang lagi hype, anda bisa mencoba [berkenalan dengan SEO](https://divedigital.id/optimasi-seo/), [menemukan keyword yang banyak dicari](https://divedigital.id/riset-keyword/) dan [optimasi SEO Off Page](https://divedigital.id/digital-marketing/backlink/)
 
 ==========================================
 # META :
